@@ -1,4 +1,4 @@
-### I'm just a student 🍵
+### I'm just a system engineer 🍵
 
 
 <a href="https://github.com/anuraghazra/github-readme-stats">
